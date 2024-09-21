@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with anyone who would be so kind on helping me expand my knowledge on everything or anything they can offer,  could be a website u know, some line off code or a tutorial about building robots, anything code, tech, robots, computers, ai, im gratefully ready to learn, im hands on so i learn pretty fast, any type of help on any topic would be greatly appreciated. 
 - 📫 How to reach me ForeignTechIndustries@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I would like to visit another plantet some day, So i actually would like to be smart enough to survive there. Or the moon whichever comes first 
+- ⚡ Fun fact: I would like to visit another planet some day, So i actually would like to be smart enough to survive there. Or the moon whichever comes first
 
 <!---
 ForeignSteppa/ForeignSteppa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
